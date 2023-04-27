@@ -1,0 +1,8 @@
+- 🔭 Atualmente estou trabalhando em informática.
+- 🌱 Atualmente estou aprendendo a ser um técnico em informática.
+- 👯 Estou procurando colaborar em tecnologias de informática.
+- 🤔 Estou procurando ajuda com tecnologias.
+- 💬 Pergunte-me sobre informática.
+- 📫 Como entrar em contato comigo: pelo email pamela.lima26@aluno.enova.educacao.ba.gov.br
+- 😄 Pronomes: ela\dela
+- ⚡ Curiosidade: gosto de estar sempre por dentro de novas notícias e amo animais.
